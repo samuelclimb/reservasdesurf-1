@@ -1,3 +1,5 @@
+Este template foi alterado para ficar de acordo com a necessidade.
+
 Thanks for downloading this theme!
 
 ## Other Useful Links
